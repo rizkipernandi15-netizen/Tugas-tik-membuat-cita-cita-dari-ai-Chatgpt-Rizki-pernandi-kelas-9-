@@ -1,0 +1,1 @@
+# Tugas-tik-membuat-cita-cita-dari-ai-Chatgpt-Rizki-pernandi-kelas-9-
